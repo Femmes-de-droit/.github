@@ -1,4 +1,4 @@
-## Hi there 👋
+## Voici Femmes de droit sur GitHub ! :-) 👋
 
 <!--
 
